@@ -1,2 +1,2 @@
 ﻿Starting to code today, so cool
- cool indeed
+ Cool indeed
